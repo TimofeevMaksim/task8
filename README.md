@@ -1,1 +1,1 @@
-# task8 (Timofeev Maksim IVT-32
+# task8 (Timofeev Maksim IVT-32)
